@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JACK23176
-- 👀 I’m interested in 
+- 👀 I’m interested in IMPARARE COME SI COSTRUISCE UN SITO DI INTRATTENIMENTO
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on NIKE
 - 📫 How to reach me ...
